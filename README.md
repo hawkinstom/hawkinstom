@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @hawkinstom
 - 👀 I’m interested in Playing / Making Games
 - 🌱 I’m currently studying Games Programing at Staffordshire University
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Quality AAA Title in the Future
 - 📫 Reach me via my personal email: hawkinstom020409@gmail.com
 
 <!---
