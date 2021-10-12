@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hawkinstom
+- 👋 Hi, I’m Tom Hawkins - @hawkinstom
 - 👀 I’m interested in Playing / Making Games
 - 🌱 I’m currently studying Games Programing at Staffordshire University
 - 💞️ I’m looking to collaborate on Quality AAA Title in the Future
